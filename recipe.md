@@ -1,0 +1,1 @@
+mix the given ingredients until it smooth, pour it in waffle maker, press it, waffle ready.
